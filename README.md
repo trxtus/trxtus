@@ -7,16 +7,18 @@
 </p>
 
 
+$${\color{yellow}- \space feel \space free \space to \space int \space unless \space stated \space otherwise, \space im \space always \space available \space to \space chat!!!}$$
+<p align="center">$${\color{yellow}⚬──────────✧──────────⚬}$$</p>}
 
-<p align="center">"⚬──────────✧──────────⚬</p>
 
 
+<p align="center">$${\color{yellow}- \space 17, \space dni \space +21 \space -14 \space (unless \space i \space know \space you!) }$$
+<p align="center">$${\color{yellow}- \space please \space iwc \space unless \space ur \space a \space friend! \space i \space get \space very \space nervous \space around \space people}$$ </p>
+<p align="center">$${\color{yellow}- \space diagnosed \space adhd \space + \space autism, \space isfp-t, \space suspected \space system}$$</p>
+<p align="center">$${\color{yellow}- \space yumeshipper! \space yumes \space in \space desc, \space doubles \space can \space int}$$ </p>
+<p align="center">$${\color{yellow}- \space feel \space free \space to \space int \space unless \space stated \space otherwise, \space im \space always \space available \space to \space chat!!!}$$
 
-<p align="center">- 17, dni 21+ -14 (unless i know you)</p>
-<p align="center">- please iwc unless ur a friend ^_^ i get very nervous around people </p>
-<p align="center">- diagnosed adhd + autism, isfp-t, suspected system</p>
-<p align="center">- yumeshipper! yumes in desc ^_^ </p>
-<p align="center"> feel free to int (unless stated otherwise), im always available to chat ^_^ !!!
+<p align="center"> <img width="650" height="650" alt="ferre graphic" src="https://github.com/user-attachments/assets/03d3af59-3855-447f-9bdf-f547121bec31" />
 
 
 
