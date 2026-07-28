@@ -7,8 +7,7 @@
 </p>
 
 
-$${\color{yellow}- \space feel \space free \space to \space int \space unless \space stated \space otherwise, \space im \space always \space available \space to \space chat!!!}$$
-<p align="center">$${\color{yellow}⚬──────────✧──────────⚬}$$</p>}
+<p align="center">$${\color{yellow}⚬──────────✧──────────⚬}$$</p>
 
 
 
@@ -19,6 +18,8 @@ $${\color{yellow}- \space feel \space free \space to \space int \space unless \s
 <p align="center">$${\color{yellow}- \space feel \space free \space to \space int \space unless \space stated \space otherwise, \space im \space always \space available \space to \space chat!!!}$$
 
 <p align="center"> <img width="650" height="650" alt="ferre graphic" src="https://github.com/user-attachments/assets/03d3af59-3855-447f-9bdf-f547121bec31" />
+<p align="center">$${\color{yellow} \space art \space \ by \space Avo0930, \space mydrawer1, \space and \space SkalkAa_, \space all \space on \space twt}$$
+
 
 
 
